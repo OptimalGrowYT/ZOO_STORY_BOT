@@ -1,5 +1,5 @@
 # ZOO STORY BOT UNLIMITED COINS HACK 
-<img src="https://github.com/OptimalGrowYT/MONEY-DOGS-HACK-VIP/blob/main/PREVIEW.png" alt="توضیح تصویر" width="1280" height="520">
+<img src="https://github.com/OptimalGrowYT/ZOO_STORY_BOT/blob/main/Preview.PNG" alt="توضیح تصویر" width="1280" height="520">
 
 ## [JOIN OUR TELEGRAM :](https://t.me/optimalgrowyt)
 ### [JOIN ZOO FAMILY AIRDROP :](https://t.me/zoo_story_bot/game?startapp=ref5500534801)
